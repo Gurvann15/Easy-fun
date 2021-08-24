@@ -1,10 +1,2 @@
 # Easy-fun
-Je passe par là 
-
-Difficult
-
-Je change 
-
-tu es ici ? 
-
-jk
+Vaincre sans péril, on triomphe sans gloire
